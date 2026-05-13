@@ -1,4 +1,4 @@
-## Intrumental List
+## Instrumental List
 ### 1. Last of the Mohicans (Guitar instrumental)
 ### 2. El Condor Pasa (Guitar instrumental)
 ### 3. "APACHE" (Guitar instrumental)
